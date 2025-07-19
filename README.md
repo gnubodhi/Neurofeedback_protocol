@@ -5,3 +5,5 @@ This repository is to develop a neurofeedback protocol. I once sent me qEEG to a
 At the point of sending in the plan, I had already done years of C4 or CZ SMR to increase my inter hemisphreic communication. This stabilised the mood swings, but didn't eliminate moods. It just protected me from being stuck in them.
 
 Then I started to do the more general protocols that the company sent me. Now doing C4 or CZ SMR started to make me too alert, so I stopped it. Started sticking to more calming protocols.
+
+Conception. AI generated imagery with a VR Headset. AI that has been trained on qEEG from a variety of people. Teach it to regulate emotions. calm overactive areas, increase activity in areas with reduced activity and reduce seizure or seizure-like activity
