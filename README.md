@@ -7,4 +7,6 @@ At the point of sending in the plan, I had already done years of C4 or CZ SMR to
 Then I started to do the more general protocols that the company sent me. Now doing C4 or CZ SMR started to make me too alert, so I stopped it. Started sticking to more calming protocols.
 
 Conception. AI generated imagery with a VR Headset. AI that has been trained on qEEG from a variety of people. Teach it to regulate emotions. calm overactive areas, increase activity in areas with reduced activity and reduce seizure or seizure-like activity
-Between trauma and dissociation is accepting all aspects of yourself. 
+Between trauma and dissociation is accepting all aspects of yourself.
+
+At the beginning, my I had psychotic features and a "paranoid" presentation. I was diagnosed with schizophrenia. But I was later rediagnosed as schizo-affective. Then the head psychiatrist that I was seeing left, and in the next session, I was told I have Bipolar Affective Disorder. Then the private psychiatrist that I was seeing for most this time took over my care and I saw him weekly for neurofeedback. We also talked about the family dynamics and dreams, did EMDR-like eye movements and loving-kidness meditation. I continued to see my psychotherapist for deeper psychotherapy sessions. Now I use a weak amount of cannabis to relieve the anxiety. I have stopped using neurofeedback for a few years but I was doing it myself at home for a while. 
