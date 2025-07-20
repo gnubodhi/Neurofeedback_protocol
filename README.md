@@ -15,4 +15,4 @@ At the beginning, my I had psychotic features and a "paranoid" (hypervigilant) p
 
 And my mind feels a little more alert now sharing my story. Like a slight-inflation. Typical with mood disorders. 
 
-Taking this information and adapting it to your own practice is allowed under the license and adaptions are encouraged, all without needing acnowledgment :)
+Taking this information and adapting it to your own practice is allowed under the license and adaptions are encouraged, all without needing acknowledgment :)
