@@ -14,3 +14,5 @@ Between trauma and dissociation is accepting all aspects of yourself.
 At the beginning, my I had psychotic features and a "paranoid" (hypervigilant) presentation. I was diagnosed with schizophrenia. But I was later rediagnosed as schizo-affective. Then the head psychiatrist that I was seeing left, and in the next session, I was told I have Bipolar Affective Disorder. Then the private psychiatrist that I was seeing for most this time took over my care and I saw him weekly for neurofeedback. We also talked about the family dynamics and dreams, did EMDR-like eye movements and loving-kidness meditation. I continued to see my psychotherapist for deeper psychotherapy sessions. Now I use a weak amount of cannabis to relieve the anxiety. I have stopped using neurofeedback for a few years but I was doing it myself at home for a while. 
 
 And my mind feels a little more alert now sharing my story. Like a slight-inflation. Typical with mood disorders. 
+
+Taking this information and adapting it to your own practice is allowed under the license and adaptions are encouraged, all without needing acnowledgment :)
