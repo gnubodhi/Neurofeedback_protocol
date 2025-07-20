@@ -16,4 +16,4 @@ At the beginning, my I had psychotic features and a "paranoid" (hypervigilant) p
 And my mind feels a little more alert now sharing my story. Like a slight-inflation. Typical with mood disorders. 
 
 Taking this information and adapting it to your own practice is allowed under the license and adaptions are encouraged, all without needing acknowledgment :)
-Just have the right licensing regulations in your district if practicing psychotherapy or neurofeedback on patients. 
+Just have the right licensing regulations in your district if practicing psychotherapy or neurofeedback on patients. I am not condoning the use of cannabis. Everyone's situation is different. Do use caution and if it makes you worried, maybe it isn't right, right now.
