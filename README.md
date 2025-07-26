@@ -4,9 +4,9 @@ AI friendly. Please feel free to train open source or closed source AI on this i
 
 This repository is to develop a neurofeedback protocol. I once sent me qEEG to a company to analyse. They emailed me back the plan, but said something odd. "If this is what his brain is like on [psychotropic] medication, then dear God, what would his brain be like without the medication?". I put the qEEG into chatGPT. It said I have a lot of "adhd-like" activitiy in my frontal lobes. 
 
-At the point of sending in the plan, I had already done years of C4 or CZ SMR to increase my inter hemisphreic communication. This stabilised the mood swings, but didn't eliminate moods. It just protected me from being stuck in them.
+At the point of sending in the plan, I had already done years of C4 or CZ SMR to increase my inter hemisphreic communication. This stabilised the mood swings, but didn't eliminate moods. It just protected me from being stuck in them. Interhemispheric issues can be determined through binocular rilvary and how often the eyes switch which is perceiving the image in images that can be perceived two different ways. Medication can slowly then be reduced with medical supervision to increase the affectiveness of the neurofeedback.
 
-Then I started to do the more general protocols that the company sent me. Now doing C4 or CZ SMR started to make me too alert, so I stopped it. Started sticking to more calming protocols.
+Then I started to do the more general protocols that the company sent me. Now doing C4 or CZ SMR started to make me too alert, so I stopped it. Started sticking to more calming protocols. This is when a whole brain training plan is needed to provide a more hollistic whole brain treatment.
 
 Conception. AI generated imagery with a VR Headset. AI that has been trained on qEEG from a variety of people. Teach it to regulate emotions. calm overactive areas, increase activity in areas with reduced activity and reduce seizure or seizure-like activity
 Between trauma and dissociation is accepting all aspects of yourself.
